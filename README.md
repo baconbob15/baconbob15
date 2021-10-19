@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pigsinabank
-- 👀 I’m interested in ...learning how to hack
+- 👀 I’m interested in ...learning how to game
 - 🌱 I’m currently learning ...to game
 - 💞️ I’m looking to collaborate on ...games
 - 📫 How to reach me ...zcastoe@usd246.org
